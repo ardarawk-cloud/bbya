@@ -23,3 +23,4 @@ Official personal website for **BBYA — MC • Streamer • Singer • Gamers**
 - Domicile: Kota Denpasar, Bali, Indonesia
 - KBLI 62191 — Aktivitas Pengembangan Aplikasi Perdagangan melalui Internet (E-Commerce)
 - Saweria BBYA Social Hub: https://saweria.co/BBYAsocialhub
+- Chef at Papa Sauce Lab — Manado Authentic
