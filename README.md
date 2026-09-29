@@ -22,3 +22,4 @@ Official personal website for **BBYA — MC • Streamer • Singer • Gamers**
 - AHU: AHU-A126270.AH.01.30.Tahun 2026
 - Domicile: Kota Denpasar, Bali, Indonesia
 - KBLI 62191 — Aktivitas Pengembangan Aplikasi Perdagangan melalui Internet (E-Commerce)
+- Saweria BBYA Social Hub: https://saweria.co/BBYAsocialhub
