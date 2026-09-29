@@ -15,7 +15,7 @@ Official personal website for **BBYA — MC • Streamer • Singer • Gamers**
 
 ## Business & Legal
 
-- Position: Co-owner — PT NADMO STUDIO INDONESIA
+- Position: Co-Founder & Brand Namesake — PT NADMO STUDIO INDONESIA
 - Legal entity: Perseroan Perorangan · Usaha Mikro · PMDN
 - Registered: 28 September 2026
 - NIB: 2809260089771
