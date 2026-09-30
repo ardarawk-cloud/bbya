@@ -24,3 +24,4 @@ Official personal website for **BBYA — MC • Streamer • Singer • Gamers**
 - KBLI 62191 — Aktivitas Pengembangan Aplikasi Perdagangan melalui Internet (E-Commerce)
 - Saweria BBYA Social Hub: https://saweria.co/BBYAsocialhub
 - Chef at Papa Sauce Lab — Manado Authentic
+- Tarot Reader at ORACLY: https://oracly.nadmo.id/
